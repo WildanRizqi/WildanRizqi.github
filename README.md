@@ -1,2 +1,2 @@
-# WildanRizqi.github
+# WildanRizqi.github.io
 nyoba
